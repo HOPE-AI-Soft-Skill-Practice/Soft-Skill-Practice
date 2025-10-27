@@ -1,1 +1,1 @@
-# Soft-Skill-Practice
+# Soft Skill Practice
